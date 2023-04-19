@@ -1,2 +1,2 @@
 # bokmarks
-Online resources
+Online resources | academic journals
