@@ -1,2 +1,2 @@
 # bookmarks
-online resources | design magazines | academic journals
+online resources | design magazines | industry associations
