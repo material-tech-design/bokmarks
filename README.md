@@ -1,2 +1,2 @@
 # bookmarks
-online resources | design magazines | industry associations
+online resources | design magazines | FMCG companies | industry associations
